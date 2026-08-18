@@ -11,6 +11,7 @@
 
 
  
-[<img width="210" height="210" alt="1000024838" src="https://github.com/user-attachments/assets/367d1cf9-26e9-4323-a42c-c156ecab6007" />](https://ezrael.atabook.org/)
+[<img width="210" height="210" alt="1000025023" src="https://github.com/user-attachments/assets/2d9a9063-0d24-482f-a9f9-c54b17007a8d" />](https://ezrael.atabook.org/)
 
 <img width="1500" height="314" alt="1000025019" src="https://github.com/user-attachments/assets/ffcbda72-20d4-4ff3-ae69-299f15be37af" />
+
