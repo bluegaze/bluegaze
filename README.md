@@ -1,10 +1,10 @@
 <div align="center">
-<img width="735" height="435" alt="1000022988" src="https://github.com/user-attachments/assets/ddc40dd4-2ada-4b2e-9bf3-bdde4bb954c6" /> 
+<img width="1500" height="314" alt="1000025018" src="https://github.com/user-attachments/assets/c6453914-8108-4e9c-844d-fdeede96e5c3" />
 
- ㅤㅤ ㅤ
 
-**"I held everything in."**
+<img width="736" height="574" alt="1000025014" src="https://github.com/user-attachments/assets/af9a4fe6-6639-445c-b5fb-3f11fa72ba98" />
 
-**"I lived my life just so that my emotions wouldn't explode,"**
+ 
+[<img width="250" height="250" alt="1000024838" src="https://github.com/user-attachments/assets/367d1cf9-26e9-4323-a42c-c156ecab6007" />](https://ezrael.atabook.org/)
 
-**"No matter what anyone says to me."**
+<img width="1500" height="314" alt="1000025019" src="https://github.com/user-attachments/assets/ffcbda72-20d4-4ff3-ae69-299f15be37af" />
