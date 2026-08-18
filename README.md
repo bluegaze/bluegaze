@@ -1,4 +1,7 @@
 <div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true-username&color=4FAFF2&label=⁠─⁠.⁠─⁠|⁠|)
+ 
 <img width="1500" height="314" alt="1000025018" src="https://github.com/user-attachments/assets/c6453914-8108-4e9c-844d-fdeede96e5c3" />
 
 
